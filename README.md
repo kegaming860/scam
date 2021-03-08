@@ -1,1 +1,1 @@
-This is aan example of a scam pop-up website
+This is an example of a scam pop-up website
